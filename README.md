@@ -6,7 +6,7 @@ Backend-focused Web Developer with hands-on freelance experience building **PHP/
 - 🚀 2+ years building production systems for clients across manufacturing, logistics, government, hospitality, and education
 - 📈 Delivered systems that are actively used in production — including a 1+ year ongoing ERP engagement
 - 📫 Reach me at: **[angelacaezaria@gmail.com]** · **[LinkedIn](https://www.linkedin.com/in/angelaczr/)**
-- 🌍 Open to relocation
+- 🌍 Surabaya, East Java
 
 ---
 
